@@ -1,0 +1,1 @@
+# Lumos-Mind_Uzb
